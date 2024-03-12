@@ -1,0 +1,2 @@
+# Jack
+Sederhana dalam langkah
